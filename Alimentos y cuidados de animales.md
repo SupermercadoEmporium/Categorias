@@ -1,4 +1,5 @@
-# Productos
+# Alimentos y cuidados de animales
+
 ALIM. CANARIOS KANTAL 500G
 
 ALIM. DOG CHOW ADULTO R/MED GDE 2KG
