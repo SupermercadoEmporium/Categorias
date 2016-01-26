@@ -1,4 +1,4 @@
-#Productos
+#Artículos de oficina, colegio
 
 APRENDE RECORTANDO Y PEGANDO
 
