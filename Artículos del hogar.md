@@ -1,4 +1,4 @@
-#Productos
+#Artículos del hogar/Herramientas/Mantenimiento
 
 ABLANDADOR DE CARNE PRESS
 
